@@ -1,0 +1,1 @@
+# Chipa-pro-strategy-tradingview-indicator
