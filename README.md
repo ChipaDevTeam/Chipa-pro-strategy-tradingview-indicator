@@ -1,3 +1,4 @@
+👉 [Join us on Discord](https://discord.gg/p7YyFqSmAz)
 # Chipa-pro-strategy-tradingview-indicator
 
 ## Links
